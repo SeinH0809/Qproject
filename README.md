@@ -62,6 +62,6 @@ All deliverables submitted in PDF format with supporting analysis and visualizat
 
 **[Your Name]**  
 Quantium Virtual Intern | Data Analytics & Strategy  
-📧 [ghdtpdls0809@gmail.com]  
+📧 [hongsein328@gmail.com]  
 🔗 [www.linkedin.com/in/sein-hong]
 
